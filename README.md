@@ -1,1 +1,0 @@
-# isusepro test я учуся!
